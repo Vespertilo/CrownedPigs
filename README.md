@@ -15,4 +15,5 @@ I have added two of the features that I saw most requested, a "Technoblade Never
 
 
 
-## Thank you Technoblade for everything you have done for the minecraft community. Your legacy will not be forgotten.
+**Thank you Technoblade for everything you have done for the minecraft community.**  
+**Your legacy will not be forgotten.**
